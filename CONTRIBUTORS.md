@@ -31,4 +31,6 @@ Khushi Agarwal(the-yellowumbrella)
 
 -[@Gauri-Choudhari](https://www.linkedin.com/in/gauri-choudhari-305193231/)
 
+-[@Priyasha-Agarwal](https://www.linkedin.com/in/priyasha-agarwal-41b898230/)
+
 
